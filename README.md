@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi there I am Rudraksha Gaharwar 👋
+## Reg.no.- 25BAI10635
+
 
 🎓 First Year BTech Student
 
