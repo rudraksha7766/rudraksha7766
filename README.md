@@ -2,7 +2,7 @@
 ## Reg.no.- 25BAI10635
 
 
-🎓 First Year BTech Student
+🎓 Second Year BTech Student
 
 📚 Branch: Computer Science and Engineering (AI & ML)
 
